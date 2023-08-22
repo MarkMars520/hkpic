@@ -1,4 +1,6 @@
 比思最新域名<br>
+优化线路：http://bbcdn.online<br>
+
 http://bc-bc.online<br>
 http://bc-bc.site<br>
 http://bisi666.cc<br>
